@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @QuynhREGEDITHETSHORT
+- Mật Khẩu Giảm Lag Dành Cho FFTH & FFMAX
+-Pass Giảm Lag FFTH : giamlagffth
+-Pass Giảm Lag FFMAX : giamlagffmax
